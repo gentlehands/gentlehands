@@ -1,2 +1,2 @@
-  　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=DDCDAB&style=plastic&label=+++🩺+++&abbreviated=true" />　　　　rmk soon　 　 　
+  　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=E8DFCA&style=plastic&label=+++💭+++&abbreviated=true" />　　　　rmk soon　 　 　
  
