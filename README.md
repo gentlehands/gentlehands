@@ -5,6 +5,7 @@
 　　　　　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=E8DFCA&style=flat-square&label=+++💭+++&abbreviated=true" />　　　　ERM EVERYTHINGS A WIP OK.　 　 　
 
 
-<img src="https://github.com/user-attachments/assets/c0776a74-8156-4630-90de-96d5aba9db38" width="300" align="left"> 
+<img src="https://github.com/user-attachments/assets/8e47e962-963c-4b00-a844-4ef387a3ded9" width="300" align="left"> 
+
 
 
