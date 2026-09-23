@@ -5,10 +5,7 @@
     
 
 
- <a href=(https://johns.atabook.org/)>
- <img width="736" height="423" alt="image" src="https://github.com/user-attachments/assets/0fb452d0-3c40-45b7-99c4-bc0709792917" />
-
-
+　　　　　　 [atabook](https://johns.atabook.org/)
 
 
 
