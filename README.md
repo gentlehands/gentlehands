@@ -6,10 +6,10 @@
            
 
                       
-　　　　　         [新book](https://johns.atabook.org/)　　　[prns.page](https://en.pronouns.page/@dr.watsonn)　　　[straw](https://drwatsons.straw.page/)
+　　　　　           [新book](https://johns.atabook.org/)　　　[prns.page](https://en.pronouns.page/@dr.watsonn)　　　[straw](https://drwatsons.straw.page/)
            
 
 
                       
-　　　         　<img src="https://github.com/user-attachments/assets/fcddc12f-ec1d-4564-9a4c-55dd6d479544" width="300" align="center"> 
+　　　         　  <img src="https://github.com/user-attachments/assets/fcddc12f-ec1d-4564-9a4c-55dd6d479544" width="300" align="center"> 
 
