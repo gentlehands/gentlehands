@@ -6,7 +6,7 @@
            
 
                       
-　　　　　          　 　    　  [新book](https://johns.atabook.org/)　　　[prns.page](https://en.pronouns.page/@dr.watsonn)　　　[straw](https://drwatsons.straw.page/)
+　　　　　          　 　    　  [新book](https://johns.atabook.org/)　　　[prns.page](https://en.pronouns.page/@sorcerersupreme_)　　　[straw](https://drwatsons.straw.page/)
            
 
 
