@@ -1,5 +1,6 @@
 　 　 　  　 　 　  
-<img width="328" height="380" align="left" alt ="image" src="https://github.com/user-attachments/assets/3ee06d41-bce1-4094-bc3b-61bb5c4b7446" />
+<img align=left alt="image" src="https://github.com/user-attachments/assets/0f33d0e2-8e2e-4721-b8a1-3880740455a2" />
+
 　 　　 　  　 　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=23&duration=4000&pause=1000&color=FFFFFF&width=500&height=35&lines=I've+got+demon+blood+in+me%2C+dean!)](https://git.io/typing-svg)
 
 
