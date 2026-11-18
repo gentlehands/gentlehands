@@ -5,8 +5,7 @@
 <div align=center> 
 <br>
 
-[新book](https://johns.atabook.org/)  
-[prns.page](https://en.pronouns.page/@wnchestrboy_)  [straw](https://drwatsons.straw.page/)
+[prns.page](https://en.pronouns.page/@wnchestrboy_)  [straw](https://drwatsons.straw.page/)  [新book](https://johns.atabook.org/)  
 
 <div align=left> 
 　<sub> press on dean 2 visit my big bros page ↓</sub> 
