@@ -4,7 +4,7 @@
 
 <div align=center> 
 
- 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　  　　 　　  　　  　[新book](https://johns.atabook.org/) 
+ 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　  　　 　　  　　  　[新book](https://johns.atabook.org/)  
 [prns.page](https://en.pronouns.page/@wnchestrboy_)  [straw](https://drwatsons.straw.page/)
 
 <div align=left> 
