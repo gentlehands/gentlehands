@@ -1,5 +1,6 @@
 　 　 　  　 　 　  
-<img width="370" height="400" align=left alt="image" src="https://github.com/user-attachments/assets/0f33d0e2-8e2e-4721-b8a1-3880740455a2" />
+<img align=left alt="image" src="https://github.com/user-attachments/assets/6bf16266-15c8-4224-870c-5ecc2259bcb0" />
+
 　 　　 　  　 　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=23&duration=4000&pause=1000&color=FFFFFF&width=500&height=35&lines=I've+got+demon+blood+in+me%2C+dean!)](https://git.io/typing-svg)
 
  　　 　  　　 　  　 　  　　 　          　  　　　　　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=60734b&style=flat-square&label=+++🦌+++&abbreviated=true" />
