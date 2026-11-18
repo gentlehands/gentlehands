@@ -1,11 +1,11 @@
 　　 　 　  <img src="https://github.com/user-attachments/assets/6f817ffd-8b73-4240-973a-8b62b09d7675" width="325" align="left">
-        　 　　 　 　 　　 　  　 　 　 　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=4000&pause=1000&color=FFFFFF&width=500&height=35&lines=I've+got+demon+blood+in+me%2C+dean!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=4000&pause=1000&color=FFFFFF&width=500&height=35&lines=I've+got+demon+blood+in+me%2C+dean!)](https://git.io/typing-svg) <div align=center>
 
- 　　 　  　　 　  　 　  　　 　          　  　　　　　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=60734b&style=flat-square&label=+++🦌+++&abbreviated=true" />
+ 　　 　  　<img src="https://komarev.com/ghpvc/?username=real-sonic&color=60734b&style=flat-square&label=+++🦌+++&abbreviated=true" />
 
 
                         
- 　　　　　　　　　　　　　　　[新book](https://johns.atabook.org/)
+ 　　　　　　　[新book](https://johns.atabook.org/)
 　[prns.page](https://en.pronouns.page/@wnchestrboy_)
 　[straw](https://drwatsons.straw.page/)
 
