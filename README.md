@@ -7,4 +7,5 @@
 [prns.page](https://en.pronouns.page/@wnchestrboy_)
 [straw](https://drwatsons.straw.page/)
 
-<img width="906" height="301" alt="image" src="https://github.com/user-attachments/assets/29edd194-9001-4dfd-bea7-63716039b2b9" /> <img width="906" height="301" alt="image" src="https://github.com/user-attachments/assets/d31f4c85-877e-415f-a28b-91922a1480a7" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/c55bc704-2fe4-44f5-8ea3-2b8abb8ad831" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/3e17e2a3-4739-490f-be79-9aca13851c46" />
