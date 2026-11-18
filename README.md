@@ -3,9 +3,10 @@
  　　<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=F7F7F7&width=424&lines=I've+got+demon+blood+in+me%2C+Dean+!" alt="Typing SVG" align="right" /></a>
 
 
-<div align=center>
+<div align="center">
 
-  　　  　　  　　  　　[prns.page](https://en.pronouns.page/@wnchestrboy_)  [straw](https://drwatsons.straw.page/)  [新book](https://johns.atabook.org/)  
+ [prns.page](https://en.pronouns.page/@wnchestrboy_) &nbsp;&nbsp; [straw](https://drwatsons.straw.page/) &nbsp;&nbsp; [新book](https://johns.atabook.org/)
+</div> 
 
 <div align=left> 
 　<sub> press on dean 2 visit my big bros page ↓</sub> 
