@@ -3,7 +3,7 @@
  　　<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=F7F7F7&width=424&lines=I've+got+demon+blood+in+me%2C+Dean+!" alt="Typing SVG" align="right" /></a>
 
 
-<br clear="all">
+<br>
 <div align="center">
   <a href="https://en.pronouns.page/@wnchestrboy_">prns.page</a>
   <a href="https://drwatsons.straw.page/">straw</a>
