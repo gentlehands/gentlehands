@@ -8,7 +8,7 @@
      
 [新book](https://johns.atabook.org/)　
 [prns.page](https://en.pronouns.page/@wnchestrboy)　
-[straw](https://drwatsons.straw.page/)
+[straw](https://wnchsterbouy.straw.page)
 
 
 <sub>press on dean 2 visit my big bros page</sub>
